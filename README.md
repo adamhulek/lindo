@@ -1,2 +1,1 @@
 # lindo
-nieruchomości
